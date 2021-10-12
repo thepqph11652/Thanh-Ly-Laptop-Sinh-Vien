@@ -1,2 +1,2 @@
-# Thanh-L-Laptop-Sinh-Vi-n
+# Thanh-Ly-Laptop-Sinh-Vien
 Dự Án Tốt Nghiệp
